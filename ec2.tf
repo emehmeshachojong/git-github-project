@@ -1,2 +1,2 @@
 #Blessed be the name of the Lord.
-#The Lord is good.
+#The Lord is good..
